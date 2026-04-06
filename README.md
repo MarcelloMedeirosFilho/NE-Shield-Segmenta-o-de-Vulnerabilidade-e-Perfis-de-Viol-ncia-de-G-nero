@@ -1,0 +1,1 @@
+# NE-Shield-Segmenta-o-de-Vulnerabilidade-e-Perfis-de-Viol-ncia-de-G-nero
